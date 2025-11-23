@@ -1,2 +1,4 @@
-<div class="tenor-gif-embed" data-postid="795785673533999099" data-share-method="host" data-aspect-ratio="1.76596" data-width="100%"><a href="https://tenor.com/view/the-summer-hikaru-died-tshd-hikaru-ga-shinda-natsu-hgsn-hikaru-gif-795785673533999099">The Summer Hikaru Died Tshd GIF</a>from <a href="https://tenor.com/search/the+summer+hikaru+died-gifs">The Summer Hikaru Died GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+
 <br />comfort
+![the-summer-hikaru-died-pat](https://github.com/user-attachments/assets/c9b68679-4013-4c4c-83c4-4197fd8224c1)
+
