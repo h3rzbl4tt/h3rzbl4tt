@@ -8,4 +8,3 @@
 <h1 align="center">⋆.˚౨ৎ 𝘐'𝘮 𝘢 𝘮𝘦𝘮𝘣𝘦𝘳 𝘰𝘧 𝘢 𝘭𝘰𝘵 𝘰𝘧 𝘧𝘢𝘯𝘥𝘰𝘮𝘴, 𝘴𝘰 𝘐'𝘮 𝘵𝘰𝘰 𝘭𝘢𝘻𝘺 𝘵𝘰 𝘭𝘪𝘴𝘵 𝘵𝘩𝘦𝘮, 𝘣𝘶𝘵 𝘮𝘰𝘴𝘵 𝘰𝘧𝘵𝘦𝘯 𝘪𝘵'𝘴 𝘢𝘯𝘪𝘮𝘦 𝘰𝘳 𝘮𝘢𝘯𝘨𝘢.</h1>
 
 ![the-summer-hikaru-died-tshd](https://github.com/user-attachments/assets/c2b8a51f-b607-4a4b-9f40-eb3c512e01ad)![the-summer-hikaru-died-tshd-hikaru](https://github.com/user-attachments/assets/7579ebaf-dcda-4fd4-a411-3c5dc81d94c9)
-![yoshikaru-yoshiki](https://github.com/user-attachments/assets/cfdc1b62-35dd-4092-bdea-49a53f8d879d)![tanaka-tanaka-tshd (1)](https://github.com/user-attachments/assets/72a5352e-b1f7-468a-8639-9b6c6dd7ec56)
